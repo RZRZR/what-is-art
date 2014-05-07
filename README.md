@@ -1,3 +1,5 @@
+# What is art?
+
 Art is an invitation to think.
 
 Art gives us the catalysis to think about something new, or differently, without repercussion in our everyday lives.
